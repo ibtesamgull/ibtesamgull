@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Ibtesam Gul  
-**Software Engineering Student | Data & Automation , Design & Frontend Enthusiast**
+**Software Engineering Student | Data & Automation , 3d Designer & Frontend Enthusiast**
 
 📧 Email Me 👉 **ibtesamgul2055@gmail.com** for collaboration, projects, or opportunities.
 
